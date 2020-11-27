@@ -1,0 +1,1 @@
+# Static-Homepage-Blogger-Template
